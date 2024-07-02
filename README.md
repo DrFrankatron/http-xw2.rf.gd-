@@ -1,1 +1,1 @@
-[# http-xw2.rf.gd](http://xw2.rf.gd/)
+[xw2.rf.gd](http://xw2.rf.gd/)
